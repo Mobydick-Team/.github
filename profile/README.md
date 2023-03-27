@@ -24,8 +24,8 @@ SNS에서도 끊임없이 게시물을 올리지만 겹치지 않는 옷들, 유
 
 📰 <b>관련 보도 자료</b>
 
-[예쁘고 저렴한 패스트패션이 기후위기를 앞당긴다?](https://www.dailypop.kr/news/articleView.html?idxno=63490#:~:text=%ED%8C%A8%EC%8A%A4%ED%8A%B8%ED%8C%A8%EC%85%98%EC%9D%80%20%EB%B9%84%EA%B5%90%EC%A0%81%20%EC%A0%80%EB%A0%B4%ED%95%9C,%EB%8A%94%20%EA%BE%B8%EC%A4%80%ED%9E%88%20%EC%9D%B4%EC%96%B4%EC%A0%B8%EC%98%A4%EA%B3%A0%20%EC%9E%88%EB%8B%A4.)
-[한번 입고 버리는 옷까지…ZARA보다 더한 패스트패션의 민폐](https://www.joongang.co.kr/article/25039703#home)
+[예쁘고 저렴한 패스트패션이 기후위기를 앞당긴다?](https://www.dailypop.kr/news/articleView.html?idxno=63490#:~:text=%ED%8C%A8%EC%8A%A4%ED%8A%B8%ED%8C%A8%EC%85%98%EC%9D%80%20%EB%B9%84%EA%B5%90%EC%A0%81%20%EC%A0%80%EB%A0%B4%ED%95%9C,%EB%8A%94%20%EA%BE%B8%EC%A4%80%ED%9E%88%20%EC%9D%B4%EC%96%B4%EC%A0%B8%EC%98%A4%EA%B3%A0%20%EC%9E%88%EB%8B%A4.)<br>
+[한번 입고 버리는 옷까지…ZARA보다 더한 패스트패션의 민폐](https://www.joongang.co.kr/article/25039703#home)<br>
 [지구 환경을 파괴하는 옷, 패스트패션](http://www.kookje.co.kr/news2011/asp/newsbody.asp?code=0300&key=20220422.99099006122)
 
 ## 꼬꼬막의 기능은 무엇이 있나요?
